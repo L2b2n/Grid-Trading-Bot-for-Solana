@@ -1,4 +1,6 @@
-https://modmaven.gumroad.com/l/anglh
+
+
+https://6yphvj-vj.myshopify.com/
 
 # Grid-Trading-Bot-for-Solana
 
